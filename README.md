@@ -1,0 +1,7 @@
+- 👋 Hi, I’m The Owner Of 8-bit-studios
+- 👀 I’m interested in Game Dev.
+- 🌱 I’m currently learning Java,C,C++,C#,JavaScript,HTML (I already know Python)
+- 💞️ I’m looking to collaborate on Business Simulator
+- 📫 How to reach me --DISCORD-- Dot.#8778
+- If You Do Want to collaborate with me, be aware I will not pay you unfortunately. This is my first game, And I want to make it- How do I say This- Okay..?
+- 
